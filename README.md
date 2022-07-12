@@ -1,2 +1,2 @@
 # Honey-pro max
-My fave
+My faver
